@@ -1,0 +1,2 @@
+# projeto62
+qwertyuiopasdfghjklçzcxvbnm
